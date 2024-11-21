@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LeBrekiFan
 - 👀 I’m interested in u ;)
-- 🌱 I’m currently learning pain
+- 🌱 I’m currently learning tax evasion
 - 💞️ I’m looking to collaborate on world domination
 - 📫 How to reach me: no
 - 😄 Pronouns: Can/do
